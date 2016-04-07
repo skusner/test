@@ -1,1 +1,1 @@
-# All rights 
+# All rights are my
